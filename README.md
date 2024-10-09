@@ -1,12 +1,12 @@
 # Oii, seja bem vindo(a)!
 
-## Sobre mim:
+## Sobre mim:✨
 Me chamo Thainá Franco Sprana, tenho 18 anos,tenho 1,77 de altura e moro em Salto-Sp;
 
-## Meus interesses:
+## Meus interesses:🌼
 Gosto de dormir,comer, viajar, pintar a unha e entre outras coisas;
 
-## Curiosidades;
+## Curiosidades;🐶
 Tenho dois cachorros, Cacau e Rabito e um rato chamado Splinter;
 Trabalho em um cinema, sou responsável pelo Marketing;
 Minhas comidas favoritas são: Lasanha de berinjela e panquecas;
